@@ -25,6 +25,6 @@ I'm always open to collaborating on projects related to my interests. If you hav
 ## 📫 How to Reach Me
 Feel free to reach out to me through GitHub or other platforms:
 
-[LinkedIn](www.linkedin.com/in/daniel-rychly)
+[LinkedIn]([www.linkedin.com/in/daniel-rychly](https://sk.linkedin.com/in/daniel-rychl%C3%BD-886902247))
 
 Let's connect and explore the world of technology and quality together!
